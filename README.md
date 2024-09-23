@@ -4,7 +4,7 @@
 - ✨ I'm looking to collaborate in Automotive Industry 🚗
 - 📫 How to reach me 👇
  
- 🔗Outlook 🔗 mariam.amr.zayed@gmail.com
+ 🔗Gmail   🔗 mariam.amr.zayed@gmail.com
  🔗LinkedIn🔗 www.linkedin.com/in/mariam-amr-zayed95
 <!---
 Mariam-Amr/Mariam-Amr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
